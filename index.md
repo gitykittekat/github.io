@@ -15,3 +15,7 @@ In einer Drehpause saß sie auf dem Schoß ihrer Oma und beobachtete neugierig i
 * Franzose
 * Humor
 * Instinkt
+
+Ein berühmtes Zitat von Luis de funes zeigt seine wahre Seite
+> Ich habe meinen Großvater als einen sehr lustigen, aber auch sanften, liebevollen und aufmerksamen Menschen in Erinnerung.
+
