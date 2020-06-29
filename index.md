@@ -19,3 +19,4 @@ In einer Drehpause saß sie auf dem Schoß ihrer Oma und beobachtete neugierig i
 Ein berühmtes Zitat von Luis de funes zeigt seine wahre Seite
 > Ich habe meinen Großvater als einen sehr lustigen, aber auch sanften, liebevollen und aufmerksamen Menschen in Erinnerung.
 
+<img src="https://static6.depositphotos.com/1013732/629/i/450/depositphotos_6294595-stock-photo-potrero-de-los-funes-san.jpg"/>
